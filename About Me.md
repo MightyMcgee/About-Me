@@ -29,7 +29,7 @@ Mightymcgee32@gmail.com
 	- 2021 - 2025
 	- Honor roll every semester
 ## Awards and Certifications
-- Perfect attendance
+- PCEP certified
 ## Skills
 - Time management
 - Teamwork
